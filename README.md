@@ -1,0 +1,1 @@
+# ulke-kalk-nma-kumeleme-analizi
